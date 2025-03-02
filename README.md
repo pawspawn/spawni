@@ -10,9 +10,6 @@ minor . they/she prns but they/them most preferred!!!!!
 lesbian . nonbinary . recipromantic
 
 
-![divider](https://github.com/user-attachments/assets/06ae86c9-dc97-4ddf-94d3-82558ad3fba5)
-
-
 fandoms!
 ; OSC, murder drones, TADC, ramshackle, FNAF, LHG, blocktales, eddsworld, rodamrix, south park, terraria, etc!!!
 
