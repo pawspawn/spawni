@@ -7,14 +7,17 @@
 # hiiiii!
 ya can call me kaden or batzy! ^_^
 minor . they/she prns but they/them most preferred!!!!!
+
 lesbian . nonbinary . recipromantic
 
 
 fandoms!
 ; OSC, murder drones, TADC, ramshackle, FNAF, LHG, blocktales, eddsworld, rodamrix, south park, terraria, etc!!!
 
+
 DNI.
 ; basic dni criteria, proshippers, rarepair haters, y. /aim
+
 
 INTERACT!!!!!!!!
 ; tnm fans, azoic assault fans, rareshippers, multishippers, artizts, 2X SHIPPERS!!!!!!!!!!!!!!!!!!!!!!!!!!!
